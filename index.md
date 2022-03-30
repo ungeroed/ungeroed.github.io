@@ -1,6 +1,3 @@
----
-title: Morten og Katrine bygger med HusCompagniet i Næstved
----
 
 Den her blog er lavet for at give information videre til dem, der planlægger at bygge hus med HusCompagniet. Den er også lavet for at give information til dem, der påtænker at flytte til Næstved kommune. Vi har planlagt at skrive om vores oplevelser med at designe og bygge hus med HusCompagniet og har også tænkt os at inkludere vores oplevelse med at flytte fra København til en ny kommune som Næstved kommune.
 Vi håber at denne blog kan hjælpe jer, der eventuelt overvejer at flytte til Næstved eller påtænker at bygge hus med HusCompagniet.
