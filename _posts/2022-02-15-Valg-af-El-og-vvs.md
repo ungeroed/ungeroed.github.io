@@ -1,3 +1,3 @@
-## Valg and El og VVS hos Uggerly
+## Valg af el og vvs hos Uggerly
 
 Kommer snart :-)
